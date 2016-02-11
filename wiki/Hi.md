@@ -1,1 +1,1 @@
-Hi wiki page!
+Hi WiKi page!
